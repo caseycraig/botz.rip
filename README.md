@@ -1,0 +1,2 @@
+botz.rip
+omah1-ajugjgyhtrfudj7gyt4hsz6bqpm8bmjn8oybxic3ntfosybevgcfxuzrfg5374u8j40000
